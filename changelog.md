@@ -1,4 +1,8 @@
-Version 0.8: Coming soon...
+Version 1: Coming soon...
+
+Version 0.9: Version 0.9 is not out yet but i will be making mother i'd like to kill milf
+
+Version 0.8: me when i make high an offical corruption song
 
 Version 0.7: BLAMMED IS HARD AS HELL
 
@@ -14,4 +18,4 @@ Version 0.2: i started making the mod, i made senpai first and changed the song 
 
 Version 0.1: i copied week 2 from original corruption dont mind if i do :))))) also i added custom background
 
-this was made by buateds
+keepachangelog doesnt work sooo i had to make it from here
