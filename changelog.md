@@ -1,6 +1,6 @@
-Version 1: Coming soon...
+Version 1: me when bopeebo offical corruption pog yes.
 
-Version 0.9: Version 0.9 is not out yet but i will be making mother i'd like to kill milf
+Version 0.9: dad be like saddsadawdsawdsawdsa
 
 Version 0.8: me when i make high an offical corruption song
 
